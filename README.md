@@ -2,9 +2,9 @@
 
 Halo, saya seorang **developer** yang menyediakan **jasa pembuatan macro** untuk **segala jenis game**! 🚀  
 
-- 🔹 **Otomatisasi gameplay yang presisi**  
-- 🔹 **Custom macro sesuai kebutuhan Anda**  
-- 🔹 **Dukungan untuk berbagai platform & perangkat**  
+🔹 **Otomatisasi gameplay yang presisi**  
+🔹 **Custom macro sesuai kebutuhan Anda**  
+🔹 **Dukungan untuk berbagai platform & perangkat**  
 
 Butuh macro yang cepat, akurat, dan bekerja tanpa hambatan? Saya siap membantu! 💡✨  
 
