@@ -10,4 +10,4 @@ Butuh macro yang cepat, akurat, dan bekerja tanpa hambatan? Saya siap membantu! 
 
 📩 **Hubungi saya untuk konsultasi & request custom macro!**
 
-Telegram : t.me/jakadev
+Telegram : (https://t.me/jakadev)
